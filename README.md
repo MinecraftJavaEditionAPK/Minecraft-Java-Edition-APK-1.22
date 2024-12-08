@@ -1,5 +1,5 @@
 # Minecraft Java Edition APK 1.22 MediaFire Free Download 2025
-### Download Now📱 [Homicipher APK 2025](https://apkmia.com/minecraft-java-edition/) 📱
+### Download Now📱 [Minecraft Java Edition APK 1.22](https://apkmia.com/minecraft-java-edition/) 📱
 
 <h2>Minecraft Java Edition APK 1.22: The Ultimate Update for Minecraft Fans<h2>
 
